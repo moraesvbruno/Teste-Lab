@@ -1,1 +1,1 @@
-# Fab Lab Livre SP // Regras de Agendamento
+# Fab Lab Escola SP // Regras de Utilização
